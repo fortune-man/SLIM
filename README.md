@@ -1,5 +1,5 @@
 # SLIM
-Start-ups a Lot In a Month
+[Start-ups a Lot In a Month](https://curvy-roast-a88.notion.site/SLIM-Startups-a-Lot-In-a-Month-fceea1c2d40c489399e20ce8c95a42c0?pvs=4)
 
 ---
 
